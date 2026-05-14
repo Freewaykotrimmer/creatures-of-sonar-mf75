@@ -1,4 +1,4 @@
-#  
+#  Experience creatures of sonaria like never before with hidden creatures of sonaria Scripts, the #1 Script. Includes auto-collect and anti-ban for
 
 
 
